@@ -1,2 +1,0 @@
-# Aprendizado
-Aprendendo o básico 
